@@ -1,0 +1,1 @@
+# obrazy_stopka
